@@ -1,1 +1,1 @@
-# Workshop-Test
+Profe, disculpa la hora… Creo que me abruma el inglés y no entendía ni lo que había que hacer al inicio del workshop. Tengo graves problemas con mi timidez al momento de hablar… Y cuando algo no lo entiendo bien o lo domino, cuando estoy en grupo me siento abrumado… El workshop lo hice yo solo, no formé grupo por temor a retrasar la nota de alguien más por mi falta de entendimiento.
